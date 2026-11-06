@@ -16,6 +16,7 @@ Selected results
 Tools
 LinkedIn X Substack Brevo Google Analytics GoHighLevel Meta Business Suite Figma Photoshop IllustratorCapCut PowerPoint
 Explore my work
-📁 portfolio: https://canva.link/xsldjesjnbv5wr4 💼 LinkedIn: ✍https://www.linkedin.com/in/edna-oiseomaye-8524b5384?utm_source=share_via&utm_content=profile&utm_medium=member_ios️
+portfolio: https://canva.link/xsldjesjnbv5wr4 
+LinkedIn: ✍https://www.linkedin.com/in/edna-oiseomaye-8524b5384?utm_source=share_via&utm_content=profile&utm_medium=member_ios️
 Get in touch
 Open to B2B content and social media roles in AI, developer tools, and web infrastructure. 📧 oiseomayeedna@gmail.com
